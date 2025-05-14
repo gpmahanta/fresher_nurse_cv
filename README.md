@@ -1,1 +1,0 @@
-# fresher_nurse_cv
